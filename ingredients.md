@@ -1,0 +1,18 @@
+# Ingredients for Dabeli Recipe
+- Pavs 4
+- Dabeli masala powder 1 1/2 tablespoons
+- Oil 3 tablespoons
+- Potatoes boiled, peeled and mashed 2 large
+- Salt to taste
+- Lemon juice 1 teaspoon
+- Tamarind chutney 1 cup
+- Sugar 1 tablespoon
+- Masala Moongphalli (spicy peanuts) 1/2 cup
+- Coconut scraped 1/4 cup
+- Pomegranate pearls 1/4 cup
+- Black grapes chopped 10-12
+- Nylon sev 1 cup
+- Fresh coriander leaves chopped 2 tablespoons
+- Red chilli garlic chutney 1/4 cup
+- Onions chopped 2 medium
+- Butter 2 tablespoons
